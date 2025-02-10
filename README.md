@@ -1,5 +1,5 @@
 # cid-cd
 <br>
-by :  chinjiladaicy
+by :  chinjilad
 <br>
 at: 10:20 
